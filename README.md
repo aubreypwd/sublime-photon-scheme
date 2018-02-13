@@ -1,4 +1,4 @@
-![](http://aubrey.pw/d/2018/90FjJ5F3RC.png)
+![](http://aubrey.pw/d/2018/62vRdEz8EO.gif)
 
 # Install
 
